@@ -1,4 +1,4 @@
-
+secure Preset for Adobe InDesign for macOS - export to SVG and masking tools is the best Adobe InDesign for macOS preset, featuring export to SVG and masking tools. Safe,
 
 
 
